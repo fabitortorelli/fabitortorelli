@@ -1,1 +1,1 @@
-Olá. Sou formada em matemática, mestre em estatística e cursando Tecnologia da Informação. Meu objetivo aqui é aprender bastante sobre as tecnologias e contribuir nos projetos. Pode entrar em contato comigo através do meu e-mail. :)
+Olá. Sou formada em matemática, mestra em estatística e cursando Tecnologia da Informação. Meu objetivo aqui é aprender bastante sobre as tecnologias e contribuir nos projetos. Pode entrar em contato comigo através do meu e-mail. :)
